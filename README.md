@@ -1,0 +1,6 @@
+![Ekran görüntüsü 2024-12-01 133932](https://github.com/user-attachments/assets/c699e096-c47b-4bd7-a613-51251222a2ce)
+![Ekran görüntüsü 2024-12-01 133943](https://github.com/user-attachments/assets/663695f8-e954-461d-9e93-15d5170b392d)
+![Ekran görüntüsü 2024-12-01 133951](https://github.com/user-attachments/assets/89d88192-fec0-4e75-8a58-6c6f365c667b)
+![Ekran görüntüsü 2024-12-01 134003](https://github.com/user-attachments/assets/db1013f7-0fd1-4942-a941-9ce9e81ad7ef)
+![Ekran görüntüsü 2024-12-01 134016](https://github.com/user-attachments/assets/2e2ef4ba-406a-4f00-865b-a48fc5db699b)
+![Ekran görüntüsü 2024-12-01 135631](https://github.com/user-attachments/assets/7a1b5c6a-ac2a-4672-b3b5-b0fc14ea0055)
